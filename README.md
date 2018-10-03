@@ -4,7 +4,9 @@ nadiao9188@hstat.org
 
 High School of Telecommunications Arts and Technology
 
-Bio- I am a junior and I live in Bay Ridge
+Bio-
+
+I am a junior and I live in Bay Ridge
 
 Schedule- 
 
